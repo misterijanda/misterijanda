@@ -15,13 +15,10 @@ https://sijandakembang.blogspot.com
 https://viralindongsay.blogspot.com  
 https://piniterest.blogspot.com  
 https://indonesiya.com  
-https://mambogermany.com  
 https://bayarpedia.blogspot.com  
 https://hasdukmerahputih.blogspot.com  
-https://imotivasi.club  
 https://pejuangpramuka.blogspot.com  
 https://kuotagram.blogspot.com  
-https://dagelanpedia.blogspot.com  
 https://sejutakita.blogspot.com  
 https://spewehascouter.blogspot.com  
 https://jandacantikkaya.blogspot.com  
