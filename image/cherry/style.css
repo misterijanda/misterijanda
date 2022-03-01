@@ -49,6 +49,9 @@ p.description{color:yellow}
     min-height: 100vh
 }
 
+a:hover {
+    cursor: pointer;
+}
 .flex {
     display: flex
 }
